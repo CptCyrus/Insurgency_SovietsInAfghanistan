@@ -1,1 +1,1 @@
-# InsurgencySovietsInAfghanistan
+# Insurgency: SovietsInAfghanistan
